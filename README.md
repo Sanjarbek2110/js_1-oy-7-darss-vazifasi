@@ -1,0 +1,1 @@
+# js_1-oy-7-darss-vazifasi
